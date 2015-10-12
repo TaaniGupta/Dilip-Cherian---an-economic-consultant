@@ -1,0 +1,2 @@
+# Dilip-Cherian---an-economic-consultant
+Mr. Dilip Cherian served as an Economic Consultant in the Bureau of Industrial Costs in the Ministry of Industry, Government of India.  Mr. Cherian holds a Bachelors degree in Economics from the Presidency College, University of Calcutta and an MA in Economics from the Delhi School of Economics, University of Delhi. He serves as on the board of various government and non-profit making organizations like the Mudra Institute of Communication, Ahmedabad, JIVA Institute and Governing Council of the National Institute of Design.
